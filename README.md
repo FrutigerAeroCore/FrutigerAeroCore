@@ -26,16 +26,16 @@
 
 
 <p align="center">
-$\text{\color{#4ed950} mucho texto. }$
+$\text{\color{#4ed950} Aero/Archi/Cinder here!. }$
 
 <p align="center">
-$\text{\color{#4ed950} mucho texto. }$
+$\text{\color{#4ed950} Aeroware's second wife thrust. }$
 
 <p align="center">
-$\text{\color{#4ed950} mucho texto. }$
+$\text{\color{#4ed950} pls don't copy my skins, most of them are totally og. }$
 
 <p align="center">
-$\text{\color{#4ed950} mucho texto. }$
+$\text{\color{#4ed950} CEO of MagicScare nomzzz. }$
 
 
 -----
