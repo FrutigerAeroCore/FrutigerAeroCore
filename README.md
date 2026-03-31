@@ -1,43 +1,72 @@
 <p align="center">
-<img width="950" height="50" src="https://github.com/user-attachments/assets/659f0616-e6e7-4fcd-a5f3-069b6b40f7be"
+<img width="950" height="80" src="https://github.com/user-attachments/assets/e9c796bf-faa4-4f3f-a735-488b57194bde"
 </p>
+  
+
+
 
 <h1 align="center">
-<code style="color : white">   "For my next trick, i shall make the civilians of Robloxia VANISH!"</code>
+<code style="color : white">   "Our future that never came to be."</code>
 </h1>
 
 <p align="center">
-<img width="300" height="250" src="https://github.com/user-attachments/assets/477dfab0-db81-41b7-a4f8-9c92b8a72a18"
+<img width="600" height="550" src="https://github.com/user-attachments/assets/66d695a3-c67a-41db-95aa-6b440149d38b"
 </p>
-  
+
+<p align="center">
+</p>
+<img width="2048" height="209" alt="tumblr_e046ad72c6643fc2c3638e65d1e1cd6e_5f396d78_2048" src="https://github.com/user-attachments/assets/b1988ce1-8589-493d-8cd9-81ada34ee8f6" />
+
+--------
+
+
 <h3 align="center">
 <code style="color : white">" hello (๑´• .̫ •ू`๑) "</code>
 </h3>
 
 
 <p align="center">
-$\text{\color{#ab71d1} mucho texto. }$
+$\text{\color{#4ed950} mucho texto. }$
 
 <p align="center">
-$\text{\color{#ab71d1} mucho texto. }$
+$\text{\color{#4ed950} mucho texto. }$
 
 <p align="center">
-$\text{\color{#ab71d1} mucho texto. }$
+$\text{\color{#4ed950} mucho texto. }$
 
 <p align="center">
-$\text{\color{#ab71d1} mucho texto. }$
+$\text{\color{#4ed950} mucho texto. }$
+
+
+-----
+<img width="200" height="180" src="https://github.com/user-attachments/assets/8ea89114-bd0d-4c9f-8540-3d6107a17e4c">$\text{\color{#00000000} .   . ..  .    ..   . ..    . ..  .    . }$<img width="300" height="180" src="https://github.com/user-attachments/assets/c988a78c-0e08-4417-b3f1-549600b87d6e">$\text{\color{#00000000} .   . ..  .    ..   . .. .   . ..  .    ..   }$<img width="300" height="180" src="https://github.com/user-attachments/assets/35e4cada-d4b5-42cf-b31e-0f7ae4d423fe">
+
+
+  [↻ ◁ || ▷ ↺ ⩇⩇:⩇⩇](https://static.wikia.nocookie.net/die-of-death/images/7/72/AerowareThemeV2.mp3/revision/latest?cb=20251109075414)
+  
+
+
+
+
+
+
+<img width="1280" height="131" alt="tumblr_56b366b0c77af630d40fc838c9ad7b22_6e79f037_1280" src="https://github.com/user-attachments/assets/f9f400a8-e42b-41bb-b11c-67aa4382fcd5" />
+
+
 
 
 -----
 
-
-
 <p align="center">
-<img width="735" height="20" src="https://github.com/user-attachments/assets/21acc6bc-95a3-4708-bf48-29c62bf26ceb"
+$\text{\color{#4ed950} "that's it" }$
 </p>
 
-
------
-
 <p align="center">
-$\text{\color{#ab71d1} "that's it" }$
+<img widht="170" height="170" src="https://github.com/user-attachments/assets/9e71f7e0-a542-4057-8856-ba7fe60741f0">
+</p>
+
+<details>
+  <summary>Credits</summary>
+  Dividers by: https://www.tumblr.com/uzmacchiato
+  Others can be found on tennor
+</details>
