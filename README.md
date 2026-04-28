@@ -42,7 +42,7 @@ $\text{\color{#4ed950} CEO of MagicScare nomzzz. }$
 <img width="200" height="180" src="https://github.com/user-attachments/assets/8ea89114-bd0d-4c9f-8540-3d6107a17e4c">$\text{\color{#00000000} .   . ..  .    ..   . ..    . ..  .    . }$<img width="300" height="180" src="https://github.com/user-attachments/assets/c988a78c-0e08-4417-b3f1-549600b87d6e">$\text{\color{#00000000} .   . ..  .    ..   . .. .   . ..  .    ..   }$<img width="300" height="180" src="https://github.com/user-attachments/assets/35e4cada-d4b5-42cf-b31e-0f7ae4d423fe">
 
 
-  [↻ ◁ || ▷ ↺ ⩇⩇:⩇⩇](https://static.wikia.nocookie.net/die-of-death/images/7/72/AerowareThemeV2.mp3/revision/latest?cb=20251109075414)
+  [↻ ◁ || ▷ ↺ ⩇⩇:⩇⩇](https://static.wikia.nocookie.net/die-of-death/images/7/72/AerowareThemeV2.mp3/revision/latest?cb=)
   
 
 
